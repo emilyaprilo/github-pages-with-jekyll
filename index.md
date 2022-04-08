@@ -1,5 +1,5 @@
 ---
-title: "Welcome to my blog"
+title: "Emily April"
 ---
 
-I'm glad you are here. I plan to talk about ...
+Canberra artist and creative
